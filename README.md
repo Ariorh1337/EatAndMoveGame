@@ -1,2 +1,2 @@
 # EatAndMoveGame
-https://ariorh1337.github.io/EatAndMoveGame/
+https://depositfilejoke.ucoz.ru/index/game1/0-4
