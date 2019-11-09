@@ -1,2 +1,2 @@
 # EatAndMoveGame
-https://depositfilejoke.ucoz.ru/index/game1/0-4
+https://depositfilejoke.ucoz.ru/games/EatOrDie/index.htm
